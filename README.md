@@ -14,7 +14,7 @@ My cousins and uncles mainly work in the I.T industry so they were able to provi
 I chose to enrol in RMIT because it is internationally recognised for its academic excellence. RMIT provides students with many resources and events that allow them to network with professionals and expand their skills. The university provides quality education and offers students a chance to study abroad in Vietnam. The opportunity to be able to study overseas would assist in my own personal development by experiencing life in another culture.
 
 ## Ideal Job
-https://www.seek.com.au/job/35590959?type=standout&userqueryid=59ee92bd6113229f7bd7b9d8ca683bde-7150092
+[My Ideal Job](https://www.seek.com.au/job/35590959?type=standout&userqueryid=59ee92bd6113229f7bd7b9d8ca683bde-7150092)
 ![Image](file:///F:/RMIT/Information%20Technology/Assignment%201/Capture.JPG)
 The job involves being the main person who provides I.T support for the employees as well as the company Toyota Financial Services. Tasks include [INCLUDE TASKS]. The position appeals to me as it involves communicating with employees and customers to ensure they receive the I.T related help they need. I enjoy solving both simple and complex problems whilst challenging myself [idk complete the rest tomorrow]
 My current qualifications include completing a certificate III in Information Technology
