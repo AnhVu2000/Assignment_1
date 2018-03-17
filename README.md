@@ -1,10 +1,9 @@
 # Anh's Profile
 
 ## Personal Information
-```markdown
-My name is Anh Vu. My student number is 3722322 and my email is s3722322@student.rmit.edu.au
+My name is Anh Vu. My student number is 3722322 and my email is s3722322@student.rmit.edu.au  
 I was born in Australia but my parents are from Vietnam so I speak both Vietnamese and English. I have completed VCE and a certificate III in Information Technology.
-```
+
 I love all kinds of animals but my favourite type would definitely be cats. I have a black and white energetic kitten named Sushi who loves to be around people just like me. In my spare time I enjoy playing games including osu and overwatch with my friends when we can all relax and share a laugh. I would also describe myself as a creative and cheerful person who loves to make art through drawing and sewing. I love learning about the world from different perspectives through documentaries, biographies and books.  
 
 ## Interest in I.T
