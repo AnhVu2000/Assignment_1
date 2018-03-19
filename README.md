@@ -28,7 +28,9 @@ My current qualifications include completing a certificate III in Information Te
 ## Personal Profile
 To me these tests emphasise that I am strongly introverted. I am self-aware and rather than being impulsive I think of the potential outcomes before forming a decision. Although I tend to observe and think rather than openly discussing my perspective, I am confident in expressing my opinions when I feel the need to. I have an inquisitive mind and prefer exploring new opportunities over following a definite plan. There may be a bit of difficulty with aural learning but I am a strong learner through reading and writing. 
 
-Within a team I may be reserved in the beginning as I listen to my teammates ideas and form my own opinions. After considering their ideas I would be open to discussing any adjustments and other possible improvements. 
+The results may influence my behaviour within a team as I could be reserved in the beginning as I listen to my teammates ideas and form my own opinions. After considering their ideas I would be open to discussing any adjustments and other possible improvements. I am quite introverted however in a team I would work to the best of my ability when focused and afterwards take a break to recover energy. I may be assertive when presenting my own ideas   
+
+When forming a team, I should take into account that my aural learning is not as strong by writing notes as I listen and reviewing them afterwards. I should also keep an open mind to the ideas of other people in the team rather than focusing on what I personally prefer. 
 
 ## Project Ideas
 ### Overview
