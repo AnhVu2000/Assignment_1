@@ -19,7 +19,7 @@ During my studies I expect to broaden my knowledge about the I.T industry and le
 
 ## Ideal Job
 [My Ideal Job](https://www.seek.com.au/job/35590959?type=standout&userqueryid=59ee92bd6113229f7bd7b9d8ca683bde-7150092)
-![Image](file:///F:/RMIT/Information%20Technology/Assignment%201/Capture.JPG)
+![Ideal Job](https://raw.githubusercontent.com/AnhVu2000/Assignment_1/master/Capture.JPG)
 The job involves being the main person who provides I.T support for the employees as well as the company Toyota Financial Services. Tasks include [INCLUDE TASKS]. The position appeals to me as it involves communicating with employees and customers to ensure they receive the I.T related help they need. I enjoy solving both simple and complex problems whilst challenging myself [idk complete the rest tomorrow]
 My current qualifications include completing a certificate III in Information Technology
 
