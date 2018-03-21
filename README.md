@@ -23,14 +23,14 @@ During my studies I expect to broaden my knowledge about the I.T industry and le
 
 The job involves being the main person who provides I.T support for the employees as well as the company Toyota Financial Services. It includes following the appropriate company agreements whilst thoroughly documenting enquiries to record the details of an issue and ways to resolve it. The position appeals to me as it involves communicating with employees and customers to ensure they receive the I.T related help they need. I enjoy solving both simple and complex problems and through this job it would introduce me to range of different I.T issues and allow me to discover new ways in my approach to interpreting them. 
 
-My current qualifications include completing a certificate III in Information Technology
+My current qualifications include completing a certificate I, II and III in Information Technology. I do not have official work experience within the I.T industry; however, I am capable of taking initiative to research and understand problems before devising a solution. My skills include being able to communicate well with others in a friendly and optimistic manner. I am also skilled in being a quick and curious learner who loves discovering unfamiliar concepts. 
 
 ## Personal Profile
 To me these tests emphasise that I am strongly introverted. I am self-aware and rather than being impulsive I think of the potential outcomes before forming a decision. Although I tend to observe and think rather than openly discussing my perspective, I am confident in expressing my opinions when I feel the need to. I have an inquisitive mind and prefer exploring new opportunities over following a definite plan. There may be a bit of difficulty with aural learning but I am a strong learner through reading and writing. 
 
 The results may influence my behaviour within a team as I could be reserved in the beginning as I listen to my teammates ideas and form my own opinions. After considering their ideas I would be open to discussing any adjustments and other possible improvements. I am quite introverted however in a team I would work to the best of my ability when focused and afterwards take a break to recover energy. I may be assertive when presenting my own ideas   
 
-When forming a team, I should take into account that my aural learning is not as strong by writing notes as I listen and reviewing them afterwards. I should also keep an open mind to the ideas of other people in the team rather than focusing on what I personally prefer. 
+When forming a team, I should take into account that my aural learning is not as strong by writing notes as I listen and reviewing them afterwards. I should also keep an open mind to the ideas of other people in the team rather than focusing on what I personally prefer. Rather than being an independent person I should also become more comfortable in learning alongside others and seeking advice from teammates when unsure. Due to my introverted personality I should take breaks occasionally where I can spend time alone to recover energy and become refreshed before returning back to work with the team.
 
 ## Project Ideas
 ### Overview
