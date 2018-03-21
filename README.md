@@ -23,6 +23,8 @@ During my studies I expect to broaden my knowledge about the I.T industry and le
 
 The job involves being the main person who provides I.T support for the employees as well as the company Toyota Financial Services. It includes following the appropriate company agreements whilst thoroughly documenting enquiries to record the details of an issue and ways to resolve it. The position appeals to me as it involves communicating with employees and customers to ensure they receive the I.T related help they need. I enjoy solving both simple and complex problems and through this job it would introduce me to range of different I.T issues and allow me to discover new ways in my approach to interpreting them. 
 
+The requirements for this position include having experience in a Service Desk Environment for at least 2 years. It is seeking someone who can express themselves eloquently in both speech and writing. It requires them to have a motivated attitude towards customer service and display a friendly demeanour when interacting with people. The position prefers an independent person who is capable of working without the instructions of others to direct them. Excellent customer service ethic is vital as the job involves constant communication between the employer and customers.
+
 My current qualifications include completing a certificate I, II and III in Information Technology. I do not have official work experience within the I.T industry; however, I am capable of taking initiative to research and understand problems before devising a solution. My skills include being able to communicate well with others in a friendly and optimistic manner. I am also skilled in being a quick and curious learner who loves discovering unfamiliar concepts. 
 
 ## Personal Profile
